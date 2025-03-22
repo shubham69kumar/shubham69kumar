@@ -35,7 +35,7 @@
 ---
 
 ### 📧 Reach Out to Me!
-💌 **Email:** [shubham.email@shubham96kumar0903@gmail.com](mailto:shubham.email@shubham96kumar0903@gmail.com)  
+💌 **Email:** [shubham96kumar0903@gmail.com](mailto:shubham.email@shubham96kumar0903@gmail.com)  
 🔗 **LinkedIn:** [linkedin.com/in/shubham](https://linkedin.com/in/shubham-kumar-a699ab190)  
   
 
